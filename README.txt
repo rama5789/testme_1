@@ -1,0 +1,1 @@
+Dear Citizen, Your Application No. 1832301437 is ready for delivery. Kindly collect it from the concerned SRO. The same can also be downloaded @ https://www.igrodisha.gov.in/ApplicationStatus.aspx . Online Form-3 is sent to the respective Tehsil for mutation. IGR Odisha.
